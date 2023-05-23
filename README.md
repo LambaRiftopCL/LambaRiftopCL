@@ -1,16 +1,21 @@
-### Hi there 👋
+䷀䷀䷀䷀䷀䷀䷀ **Welcome to my Repository** ䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀
 
-<!--
-**LambaRiftopCL/LambaRiftopCL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+䷀
+      <------I'm LambaRiftop and I going to discribe my self------>      ䷀
 
-Here are some ideas to get you started:
+**䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀䷀**
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                ☢some things about me☢
+                         👻
+
+//// I have a cat 😸
+
+//// I'm studying computer engineering 🤓
+
+//// I'm just here to learn programming 🤖
+
+//// I’m looking for some one to teach me several things 🤔
+
+//// Fun fact: I know how to move my ears 😎😎😎
+
+//// You can reach me in discord: LambaRiftop#4320
